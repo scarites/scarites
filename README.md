@@ -9,5 +9,5 @@
 <br />
 <br />
 
-<p align="center"> c + h completely fine, inspo is fine, allowed is fine but i'd really prefer you dont do it if you're making a cosplay of the same character. </p>
+<p align="center"> c + h completely fine, inspo is fine, colorpicking is fine but i'd really prefer you dont do it if you're making a cosplay of the same character. </p>
 <p align="center"> please dont interact with me in any way if you're an okegom, changed, or hazbin hotel/helluva boss fan.</p>
