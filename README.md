@@ -3,7 +3,7 @@
 <br />
 
 <p align="center"> go to my crappy strawpage i'd rather not use github for an entire about me </p>
-<p align="center">[please work](https://rrocket.straw.page)</p>
+<p align="center">https://rrocket.straw.page</p>
 
 <br />
 <br />
